@@ -1,0 +1,4 @@
+- Pet Sematary
+- High Way to Hell
+- Ace of Spades
+- A lua me traiu
